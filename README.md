@@ -11,4 +11,4 @@ An astronaut floating in space with the Earth and stars in the background
 
 A majestic dragon perched on top of a castle, breathing fire into the sky
 
-A robot orchestra performing in a grand futuristic concert hall
+A vintage steam train traveling through a snowy mountain pass
